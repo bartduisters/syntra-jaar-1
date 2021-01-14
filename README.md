@@ -1,1 +1,1 @@
-# syntra-jaar-1
+# Dit is om te oefenen voor alle eerstejaars
